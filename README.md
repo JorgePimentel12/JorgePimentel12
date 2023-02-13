@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with ..other persons
 - 💬 Ask me about .. who i am?
 - 📫 How to reach me: .. talk to me  ont he phone
-- 😄 Pronouns: ...
+- 😄 Pronouns: kikin
 - ⚡ Fun fact: ...
