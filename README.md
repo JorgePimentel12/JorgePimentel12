@@ -8,6 +8,8 @@
 - 📫 How to reach me: talk to me  ont he phone
 - 😄 Pronouns: kikin
 - ⚡ Fun fact: I play videogames
+
+
 |             | Lunes                    | Martes             | Miercoles                     | Jueves                 | Viernes               |   |         
 |-------------|--------------------------|--------------------|-------------------------------|------------------------|-----------------------|---|-
 | 11:05-11:55 | Mantenimineto de computo |                    | Mantenimineto de computo      |                        |                       |   |     
